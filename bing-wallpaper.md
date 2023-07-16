@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-17 | [Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)](https://cn.bing.com/th?id=OHR.BearHoleBrook_EN-US0278547262_UHD.jpg) 
+
 2023-07-16 | [Castelmezzano, Italy (© Rudy Balasko/Shutterstock)](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-US9968041695_UHD.jpg) 
 
 2023-07-14 | [Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_EN-US3229882052_UHD.jpg) 
