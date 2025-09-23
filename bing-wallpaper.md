@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-24 | [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) 
+
 2025-09-22 | [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg) 
 
 2025-09-21 | [Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg) 
