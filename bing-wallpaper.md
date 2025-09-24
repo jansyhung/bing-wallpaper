@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-25 | [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg) 
+
 2025-09-24 | [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg) 
 
 2025-09-22 | [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg) 
